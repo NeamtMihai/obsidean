@@ -1,0 +1,1 @@
+1. poze la desenele de pe usi
