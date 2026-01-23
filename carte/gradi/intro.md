@@ -20,3 +20,10 @@ nu stiu cum sa organizez
 
 m-am nascut in 14 mai 1997, mama zice ca la 11:30, dar eu unul nu mai tin minte
 
+
+
+ca si multi copi aveam bunici
+si dupa gradinita, sau mno, inainte sa ma dea la gradinita
+si chiar dupa scoala in primi ani stateam la bunici
+parinti lucrau si stateam la bunici
+
