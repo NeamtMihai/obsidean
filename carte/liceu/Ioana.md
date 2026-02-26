@@ -112,3 +112,23 @@ si ca am vazut Mr Nobody impreuna
 tin minte ca m-am apucat de jucat HearthStone cam inainte sa se desparta de mine
 jocu ala m-a tinut o vreme buna, deja o stiam pe Flori (Sotia) cand am vandut contul  
 
+
+tin minte ca ne-am mai vazut dupa o vreme
+gen mno, aveam prieteni comuni
+din minte ca am fost o data la sigmir cred OMG
+ok keep Sigmir in mind
+la o bere
+si ieseam cu un tip Yondi, prieten de a lui salanta
+si era asa mai nerd culture conosaur
+si avea un board game cu Game of Thrones
+si era acolo intins pe masa
+cu toate alea
+plansa bulinute decupate
+figurine
+carti
+si eu am varsat o pere pe el
+si eram omg nooo
+si am incercat repede sa stergem
+si era din ce in ce mai rau
+gen se tot imprastia berea
+
