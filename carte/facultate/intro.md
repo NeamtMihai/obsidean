@@ -58,3 +58,58 @@ si o lua de la capat
 defapt, intre subiecte iti mai trantea cate un test
 mno, de unde puteai tu sa inveti sau sa intelegi?
 
+mno dupa cum vedeti a trebuit sa invat de altundeva
+asa ca m-am dus la Ionita
+vezi Ionita.md
+
+
+am dat bacu la Romana, Mate M1 si Info
+aveam emoti, as you do 
+tin minte ca era dimineata cu bacul la romana
+si stateam pe holul liceului in fata sali unde urma examenul
+si a durat mult
+intarziau sa vina subiectele
+
+am avut 'noroc', da noroc de fapt sa fiu in sala cu Dan
+si mai facem glume in timp ce ascultam cu emoti
+
+asta imi anuce aminte de detectivul Oachi
+see Oachi.md
+
+
+
+ne-a venit Harap Alb
+cel mai mare noroc
+era singura carte pe care am citit-o
+din programa
+gen, mno, nu am citit-o cartea
+am gasit ceva benzi desenate de la HAC!
+
+
+chiar radeam cu dan ca tipu care a adus subiectele era chel
+si zicam "Mni spaanuu!"
+si chiar a fost Harap Alb
+a da, si e un personaj Sfanta Duminica
+si eu i-am zis Sfanta Vineri
+
+si dupa cred ca ne-am dus la Class la o cafea si aia a fost
+Class.md?
+
+Luni la romana
+Miercuri la mate
+si vineri la Info
+
+sau ceva de genu
+mno, a fost ok per total
+
+tin minte emotiile de a primi rezultatele
+se afisau pe niste tabeel in curtea liceului
+scria mic si era greu sa iti gasesti numele
+de aici ar fi trebuit sa ma prind ca am nevoie de ochelari
+si ca sunt putin dislexic
+da mno
+am luat note ok
+aproape 8 la romana, 7.80 sau ceva
+noua fara zece la mate si noua si zece la info
+
+de note de la romana nu sunt chiar mandru da e ok
