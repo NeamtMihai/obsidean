@@ -113,3 +113,68 @@ aproape 8 la romana, 7.80 sau ceva
 noua fara zece la mate si noua si zece la info
 
 de note de la romana nu sunt chiar mandru da e ok
+
+dupa toata sandramaua cu bacu urmau mai multe sandramale cu admiterile
+cu adminterea e mai ok
+in sensu in care daca futi un cal in pizda la admitere in 2015,
+hai ca poti sa o mai dai si in 2016
+
+la bac e mai ciudat, da, poti sa il dai in rate, sa tot iei cate un 6 pe an
+pana il treci, da asjuta pe cine are nevoie sa treaca bacu, si ii putin greu
+si atat
+da daca iei o note proasta, sau meh
+ce faci? faci o contestatie, poate iti mai da un 0.5
+da nu poti sa il mai dai o data
+
+apropo de futut cai in pizda, prima admitere era la babes
+vezi babes.com
+si imi tot zice Salanta, ca mno el era cu un an mai mare ca a fost foarte ciudat la admitere la info
+cumva, puteai sa alegi sa dai examen din info sau din mate
+si eu am zis, ma
+la poli examenu e muszai din mate
+bacu e din mate iar,
+(si din info da mai ok cumva)
+hai sa dau si admiterea tot din mate la babes, nu?
+
+mno am luat o nota de nici macar 7 cred
+a fost cam dificila treaba
+nici nu mai stiu daca am pus contestatie
+
+mno dupa treba asta am zis asta e,
+nu intru la babes
+ma duc la poli dau admitere acolo
+ma, deci la poli era grila
+gen A B C D E
+da era mai greu ca la babes
+deci si sa sti rezolva toate problemele 
+care erau multe
+nu apucai
+sau ti se termina tot zaharu din sange
+eu zic ca a fost si noroc acolo
+
+oricum, puteai sa te apropi mult de raspuns,
+o mai luai prin eliminare
+trebuie sa arate cam asa
+da puneai si la noroc
+
+mno am luat un 8,40 sau ceva de genu
+nici nu mai stiu cat
+era ok, am fost fericit
+am zis undeva tot intru
+stiu ca am pus acolo la aplicare toate ingineriile
+am pus calculatoare - automatica - si apoi si electrica si telecomunicati si deaia si deaialalta, undeva tot intrai
+
+mno tin minte ca prima data am stat cu tata la hotel sport in parc
+am venit cu o zi inainte pentru admitere
+ca era super dimineata
+dupa cred ca ne-am si gasit chiria 'la Nadejdea'
+si cred ca acolo am stat
+
+tin minte ca stateam cu emoti cu o zi inainte seara sa se afiseze rezultatele
+am intrat la poli, la automatica, la taxa
+primul sub linia de buget
+
+tin minte ca a fost cam 4k lei
+dupa am intrat la buget, am luat si bursa
+am facut un calcul -4k (din primu an de plata) + ce am luat din bursa > 0
+"am iesit pe plus"
