@@ -48,3 +48,14 @@ iau becul cu mine si o intreb pe doamna care lucreaza acolo
 
 la ce s-a putut gandi femeia aia
 saraca
+
+sau fac decluter prin casa
+si am niste carti pe care le vand pe vinted
+[chiar sa ma contactati daca va cautati carti de care eu nu mai am nevoie]
+si imi scrie un cont autograf4u sa ma intrebe daca Codul Sursa cartea autobibleografica a lui Bill Gates are autograf
+as fi putut zice nu
+as fi putut zice verific
+as fi putut sa incerc sa ii copiez autograful lui Bill Poarta
+dar eu ce am facut? ceva logic? nu
+am zis "buna dimineata, nu exista autograf în carte dar pot sa iti dau eu unul
+sau daca avem noroc, facem rost de la George Mesaros"
